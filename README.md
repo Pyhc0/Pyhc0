@@ -32,3 +32,5 @@
 <summary><b>Limitations/Constraints</b></summary>
 
 </details>
+
+                             ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  III  :    The “Understanding”.　　  
