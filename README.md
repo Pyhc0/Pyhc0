@@ -47,13 +47,13 @@
   
 What i allowed : 
 
-**I :** You can make ship of me, as long i know it and you ask if it ok for me. 
+**I :** ʏᴏᴜ ᴄᴀɴ ᴍᴀᴋᴇ ꜱʜɪᴘ ᴏꜰ ᴍᴇ, ᴀꜱ ʟᴏɴɢ ɪ ᴋɴᴏᴡ ɪᴛ ᴀɴᴅ ʏᴏᴜ ᴀꜱᴋ ɪꜰ ɪᴛ ᴏᴋ ꜰᴏʀ ᴍᴇ. 
 
-**II :** You can talk with me topic of any kind but more serious topic about private matter keep in private chat.
+**II :** ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴡɪᴛʜ ᴍᴇ ᴛᴏᴘɪᴄ ᴏꜰ ᴀɴʏ ᴋɪɴᴅ ʙᴜᴛ ᴍᴏʀᴇ ꜱᴇʀɪᴏᴜꜱ ᴛᴏᴘɪᴄ ᴀʙᴏᴜᴛ ᴘʀɪᴠᴀᴛᴇ ᴍᴀᴛᴛᴇʀ ᴋᴇᴇᴘ ɪɴ ᴘʀɪᴠᴀᴛᴇ ᴄʜᴀᴛ.
 
-**III :**
+**III :** ʏᴏᴜ ᴄᴀɴ ᴀꜱᴋ ᴀɴʏ ᴛɪᴘꜱ ᴏꜰ ᴀɴʏ ᴋɪɴᴅ ᴊᴜꜱᴛ ᴇxᴘᴇᴄᴛ ɴᴏᴛ ᴍᴜᴄʜ.
 
-**IV :**
+**IV :** ʏᴏᴜ ᴄᴀɴ ᴀꜱᴋ ᴡʜᴀᴛ ꜱᴏᴄɪᴀʟ ᴀɴᴅ ɪʟʟ ɢɪᴠᴇ ʙᴜᴛ ʙᴜᴛ ꜱᴏᴍᴇᴛɪᴍᴇꜱ ɴᴏᴛ ɪᴛ ᴅᴇᴘᴇɴᴛꜱ.
 
   </details>
   
