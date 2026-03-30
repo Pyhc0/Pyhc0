@@ -10,4 +10,11 @@
                              ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The “Understanding”.　　  
 <details>
 <summary><b>Statues</b></summary>
-
+<details>
+<summary><b>Provisions</b></summary>
+<details>
+<summary><b>Stipulations</b></summary>
+<details>
+<summary><b>Terms</b></summary>
+<details>
+<summary><b>Limitations/Constraints</b></summary>
