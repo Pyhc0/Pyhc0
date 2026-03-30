@@ -11,6 +11,9 @@
 <details>
 <summary><b>Statues</b></summary>
 ꜰɪʀꜱᴛ ᴏꜰ ɪ'ᴍ ᴛᴀᴋᴇɴ ʙʏ ᴍʏ ɢɪʀʟꜰʀɪᴇɴᴅꜱ, @Sp4ze1th ꜱᴏ, ɴᴏ ʏᴏᴜ ᴄᴀɴ'ᴛ ᴀꜱᴋ ᴍᴇ ʙᴇ ʏᴏᴜʀꜱ!
+🟢
+⛔
+🌙
  
 </details>
   
