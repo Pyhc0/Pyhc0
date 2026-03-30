@@ -10,9 +10,9 @@
                              ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The “Understanding”.　　  
 <details>
 <summary><b>Statues</b></summary>
-**I:** ɪ'ᴍ ᴛᴀᴋᴇɴ ʙʏ ᴍʏ ɢɪʀʟꜰʀɪᴇɴᴅꜱ, @ꜱᴘ4ᴢᴇ1ᴛʜ ! ꜱᴏ, ɴᴏ ʏᴏᴜ ᴄᴀɴ'ᴛ ᴀꜱᴋ ᴍᴇ ʙᴇ ʏᴏᴜʀꜱ!
-
-  </details>
+ꜰɪʀꜱᴛ ᴏꜰ ɪ'ᴍ ᴛᴀᴋᴇɴ ʙʏ ᴍʏ ɢɪʀʟꜰʀɪᴇɴᴅꜱ, @Sp4zeth ! ꜱᴏ, ɴᴏ ʏᴏᴜ ᴄᴀɴ'ᴛ ᴀꜱᴋ ᴍᴇ ʙᴇ ʏᴏᴜʀꜱ!
+ 
+</details>
   
 <details>
 <summary><b>Provisions</b></summary>
