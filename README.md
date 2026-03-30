@@ -11,18 +11,24 @@
 <details>
 <summary><b>Statues</b></summary>
 
+  </details>
   
 <details>
 <summary><b>Provisions</b></summary>
 
+  </details>
   
 <details>
 <summary><b>Stipulations</b></summary>
 
+  </details>
   
 <details>
 <summary><b>Terms</b></summary>
 
+  </details>
   
 <details>
 <summary><b>Limitations/Constraints</b></summary>
+
+</details>
