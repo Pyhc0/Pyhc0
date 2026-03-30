@@ -43,12 +43,18 @@
   
 <details>
 <summary><b>Provisions</b></summary>
+  .
+  
 What i allowed : 
 
 **I :** You can make ship of me, as long i know it and you ask if it ok for me. 
+
 **II :** You can talk with me topic of any kind but more serious topic about private matter keep in private chat.
+
 **III :**
+
 **IV :**
+
   </details>
   
 <details>
