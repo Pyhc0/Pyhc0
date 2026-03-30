@@ -33,4 +33,7 @@
 
 </details>
 
+### Interactive Stat
+<img src="https://streak-stats.demolab.com?user=Pyhc0&theme=tokyonight&hide_border=true" alt="Pyhc0's GitHub Stats" />
+
                              ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  III  :    The “Final page”.　　  
