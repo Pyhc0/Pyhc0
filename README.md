@@ -9,9 +9,5 @@
 
                              ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The “Understanding”.　　  
 <details>
-<summary><b>Not-so-funfact about me</b></summary>
+<summary><b>Statues</b></summary>
 
-
-
-##Wip
-Also feel free to sign my ata book 
