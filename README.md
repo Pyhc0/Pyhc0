@@ -8,6 +8,7 @@
 
 
                              ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The “Understanding”.　　  
+                                                 WIP PLZ STAND BY
 <details>
 <summary><b>Statues</b></summary>
 ꜰɪʀꜱᴛ ᴏꜰ ɪ'ᴍ ᴛᴀᴋᴇɴ ʙʏ ᴍʏ ɢɪʀʟꜰʀɪᴇɴᴅꜱ, @Sp4ze1th ꜱᴏ, ɴᴏ ʏᴏᴜ ᴄᴀɴ'ᴛ ᴀꜱᴋ ᴍᴇ ʙᴇ ʏᴏᴜʀꜱ!.
