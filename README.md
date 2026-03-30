@@ -8,10 +8,10 @@
 
 
                              ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The “Understanding”.　　  
+<details>
+<summary><b>Not-so-funfact about me</b></summary>
 
 
 
 ##Wip
 Also feel free to sign my ata book 
-<details>
-<summary><b>Not-so-funfact about me</b></summary>
