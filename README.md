@@ -14,6 +14,8 @@
                                               
 <details>
 <summary><b>Statues</b></summary>
+.
+  
 ꜰɪʀꜱᴛ ᴏꜰ ɪ'ᴍ ᴛᴀᴋᴇɴ ʙʏ ᴍʏ ɢɪʀʟꜰʀɪᴇɴᴅꜱ, @Sp4ze1th ꜱᴏ, ɴᴏ ʏᴏᴜ ᴄᴀɴ'ᴛ ᴀꜱᴋ ᴍᴇ ʙᴇ ʏᴏᴜʀꜱ!.
 
   .
@@ -79,15 +81,20 @@
 <summary><b>Terms</b></summary>
 
 **I :**
+
 **II :**
+
 **III :**
+
 **IV :**
 
   </details>
   
 <details>
 <summary><b>Limitations/Constraints</b></summary>
+.
 
+**𝐌𝐲 𝐁𝐨𝐮𝐧𝐝𝐚𝐫𝐲 :**
 </details>
 
 <details>
