@@ -114,7 +114,7 @@
 
 **I :** $${\color{orange}Manepear}$$
 
-**II :** Spokewashere This is ${\color{red}red}$ text and ${\color{blue}blue}$ text.
+**II :** Spokeishere ${\color{red}SP}$ ${\color{yellow}ok}$ ${\color{blue}ei}$ ${\color{purple}here}$
 
 
 **III :** Ashswagg
