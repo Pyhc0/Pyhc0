@@ -76,9 +76,9 @@
 ### Interactive Stat
 <img src="https://streak-stats.demolab.com?user=Pyhc0&theme=tokyonight&hide_border=true" alt="Pyhc0's GitHub Stats" />
 
-                             .　　  
-<img width="2732" height="1536" alt="Image" src="https://github.com/user-attachments/assets/be612393-c842-4f99-9784-d628a57fb70f" />
 
                               ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  III  :    The “Final page”.　　 
 
 ᴏʜ ᴍʏ, ʏᴏᴜ ʀᴇᴀᴄʜ ᴛᴏ ᴛʜᴇ ᴇɴᴅ ᴏꜰ ᴛʜɪꜱ? ᴡᴇʟʟ ᴛʜᴇɴ ᴄᴏɴɢʀᴀᴛᴜʟᴀᴛɪᴏɴ. ɪ ɴᴇᴠᴇʀ ᴇxᴘᴇᴄᴛ ᴍᴜᴄʜ ᴘᴇᴏᴘʟᴇ ᴛᴏ ᴡᴀɴᴛᴇᴅ ᴛᴏ ᴜɴᴅᴇʀꜱᴛᴀɴᴅ ᴀꜱ ʏᴏᴜ ᴅɪᴅ ꜱᴏ ꜱᴜᴘʀɪꜱᴇ ʏᴏᴜʀꜱᴇʟꜰ ᴡɪᴛʜ ꜱᴏᴇᴍᴛʜɪɴɢꜱ, ᴀꜱ ᴀ ᴛʜᴀɴᴋꜱ ʏᴏᴜ ꜰᴏʀ ᴛʀʏɪɴɢ ᴛᴏ ᴜɴᴅᴇʀꜱᴛᴀɴᴅ ᴀɴᴅ ʀᴇꜱᴘᴇᴄᴛ ᴡʜᴀᴛ ɪ ʜᴀᴠᴇ ᴘᴜᴛ. ɴᴏᴡ ʏᴏᴜ ᴍᴀʏ ɢᴏ ᴀʜᴇᴀᴅ ᴛʜᴇ ᴇxɪꜱᴛ ᴛʜɪꜱ ᴘᴀɢᴇ, ᴀɴᴅ ᴀɢᴀɪɴ ᴛʜᴀɴᴋꜱ ʏᴏᴜ ʜᴏᴘᴇ ʏᴏᴜ ʜᴀᴠᴇ ᴛʜᴇ ʟɪꜰᴇ ʏᴏᴜ ᴅʀᴇᴀᴍ ᴏꜰ ɪꜰ ᴛʜᴇ ᴡᴏʀʟᴅ ʟᴇᴛ ɪᴛ ᴀɴᴅ ʏᴏᴜ ᴋᴇᴇᴘ ᴛʀʏɪɴɢ. ʏᴏᴜ ɢᴏᴛ ᴍʏ ʀᴇꜱᴘᴇᴄᴛ.
+
+<img width="2732" height="1536" alt="Image" src="https://github.com/user-attachments/assets/be612393-c842-4f99-9784-d628a57fb70f" />
