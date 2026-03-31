@@ -112,8 +112,7 @@
   
 **𝐌𝐲 𝐤𝐢𝐧𝐬/𝐫𝐞𝐥𝐚𝐭𝐞𝐝 𝐅𝐫𝐨𝐦 𝐭𝐨𝐩 𝐫𝐞𝐥𝐚𝐭𝐞𝐝 𝐭𝐨 𝐥𝐞𝐚𝐬𝐭 𝐫𝐞𝐥𝐚𝐭𝐞𝐝:**
 
-**I :** Manepear $${\color{green}This\ is\ green\ text}$$
-
+**I :** Manepear $${\color{orange}Manepear\ text}$$
 
 **II :** Spoke
 
