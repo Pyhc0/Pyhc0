@@ -61,6 +61,14 @@
 <details>
 <summary><b>Stipulations</b></summary>
 
+**𝐫𝐞𝐪𝐮𝐢𝐫𝐞𝐦𝐞𝐧𝐭𝐬 𝐨𝐫 𝐜𝐨𝐧𝐝𝐢𝐭𝐢𝐨𝐧𝐬 :**
+
+**I :**
+**II :**
+**III :**
+**IV :**
+
+
   </details>
   
 <details>
