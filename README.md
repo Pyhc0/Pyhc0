@@ -114,14 +114,14 @@
 
 **I :** $${\color{orange}Manepear}$$
 
-**II :** Spokeishere ${\color{red}SP}$ ${\color{yellow}ok}$ ${\color{blue}ei}$ ${\color{purple}here}$
+**II :** $${\color{blue}Spokeishere}$$
 
 
-**III :** Ashswagg
+**III :** $${\color{purple}Ashswagg}$$
 
-**IV :** Theobaldthebird
+**IV :** $${\color{yellow}Theobaldthebird}$$
 
-**V :** Sharpness
+**V :** $${\color{red}Sharpness}$$
 
 </details>
 
