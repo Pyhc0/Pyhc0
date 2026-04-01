@@ -119,9 +119,9 @@
 
 **III :** $${\color{purple}Ashswagg}$$
 
-**IV :** $${\color{orange}Manepear}$$
+**IV :** ** $${\color{red}Sharpness}$$
 
-**V :** $${\color{red}Sharpness}$$
+**V :** $${\color{orange}Manepear}$$
 
 </details>
 
