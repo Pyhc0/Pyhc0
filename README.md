@@ -119,7 +119,7 @@
 
 **III :** $${\color{purple}Ashswagg}$$
 
-**IV :** ** $${\color{red}Sharpness}$$
+**IV :** $${\color{red}Sharpness}$$
 
 **V :** $${\color{orange}Manepear}$$
 
