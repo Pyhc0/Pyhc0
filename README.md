@@ -112,14 +112,14 @@
   
 **𝐌𝐲 𝐤𝐢𝐧𝐬/𝐫𝐞𝐥𝐚𝐭𝐞𝐝 𝐅𝐫𝐨𝐦 𝐭𝐨𝐩 𝐫𝐞𝐥𝐚𝐭𝐞𝐝 𝐭𝐨 𝐥𝐞𝐚𝐬𝐭 𝐫𝐞𝐥𝐚𝐭𝐞𝐝:**
 
-**I :** $${\color{orange}Manepear}$$
+**I :** $${\color{yellow}Theobaldthebird}$$ 
 
 **II :** $${\color{blue}Spokeishere}$$
 
 
 **III :** $${\color{purple}Ashswagg}$$
 
-**IV :** $${\color{yellow}Theobaldthebird}$$
+**IV :** $${\color{orange}Manepear}$$
 
 **V :** $${\color{red}Sharpness}$$
 
