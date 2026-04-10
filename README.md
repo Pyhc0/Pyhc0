@@ -8,7 +8,7 @@
 
                              .                                          .　　  
 
-<img width="2732" height="1536" alt="Image" src="https://github.com/user-attachments/assets/b9d05e97-1623-4e30-9a39-3796717736f4" />
+![Image](https://github.com/user-attachments/assets/433d52cd-ff1c-4b18-9f60-c0c5a295052a)
 
                              ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    The “Understanding”.　　  
                                               
